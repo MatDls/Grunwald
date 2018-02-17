@@ -9,7 +9,7 @@ This chapter will be written by Janush.
 
 Rozdział 2 Mariusza
 ------------------------------------
-
+This chapter will be dedicated to virtue of honesty and bravery.
 
 
 
